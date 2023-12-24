@@ -1,6 +1,6 @@
 - 👋 Welcome to @rankzoid-agency
 - 👀 An AI Powered IT Comapany 
-- 🌱 Providing Services and consultation 
+- 🌱 Get in touch for IT Consulting & Services
 - 💞️ Follow for Collaboration
 - 📫 Contact at info@rankzoidmarketing.agency
 
